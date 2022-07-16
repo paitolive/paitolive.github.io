@@ -1,2 +1,0 @@
-# KalooDinaz.github.io
-Paito
